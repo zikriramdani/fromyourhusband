@@ -1,6 +1,6 @@
 # I LOVE YOU
 
-Please visit <https://fromyourhusband.github.io>
+Please visit <https://zikriramdani.github.io/fromyourhusband/>
 
 ## Tentang Website
 
