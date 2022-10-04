@@ -4,4 +4,4 @@ Please visit <https://fromyourhusband.github.io>
 
 ## Tentang Website
 
-Website ini dibuat istriku terCINTA
+Website ini dibuat untuk istriku terCINTA
